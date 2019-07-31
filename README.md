@@ -1,0 +1,1 @@
+# datasetUMKM_kotabandung_2018
